@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+와아키키 아일랜드는 지친 마음을 정화시킬 수 있는 무언가를 잔뜩 그려보다가 탄생하게 된 상상속 공간입니다.
+
+환상의 섬에서 일어나는 작은 이야기들을 담아요.
